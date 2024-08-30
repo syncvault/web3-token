@@ -7,3 +7,17 @@ Token holders of $SVTS will gain exclusive content access, participate in stream
 SyncVault distinguishes itself by ensuring creators receive a higher revenue percentage compared to traditional platforms. Recognized as a Top 100 Global Media Start-Up, SyncVault is reshaping multi-platform social media promotion and monetization.
 
 Click here to read the Whitepaper / Technical Documentation: https://docsend.com/view/v236d2k9f7de8vwt
+
+
+Contact Points:
+
+twitter/ X : 
+https://x.com/wearesyncvault?s=21&t=fCVT7HYCZPe2xbm2LDuCnA
+Instagram: 
+https://www.instagram.com/wearesyncvault?igsh=eDJwbGdsYm1jcjUx
+LinkedIn: 
+https://www.linkedin.com/company/syncvault/
+Discord: 
+https://discord.gg/wearesyncvault
+Telegram : 
+https://t.me/wearesyncvault
